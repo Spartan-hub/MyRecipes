@@ -1,5 +1,7 @@
 ## Ingredients
 
+![Image of Red Velvet Cake](/download.jfif)
+
 1. All purpose flour -> 2&1/2 Cups.
 2. Cocoa powder -> 2tbs.
 3. Salt -> 1/2tsp.

@@ -1,3 +1,3 @@
 # Red Velvet Cake
 
-![Image of Yaktocat](/download.jfif)
+![Image of Red Velvet Cake](/download.jfif)
